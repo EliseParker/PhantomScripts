@@ -18,5 +18,3 @@ Target Selector
 𝐈𝐟 𝐲𝐨𝐮 𝐡𝐚𝐯𝐞 𝐚𝐧𝐲 𝐢𝐬𝐬𝐮𝐞𝐬 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞 𝐬𝐨𝐟𝐭𝐰𝐚𝐫𝐞𝐬 𝐰𝐞 𝐩𝐫𝐨𝐯𝐢𝐝𝐞𝐝, 𝐟𝐞𝐞𝐥 𝐟𝐫𝐞𝐞 𝐭𝐨 𝐜𝐨𝐧𝐭𝐚𝐜𝐭 𝐮𝐬 𝐝𝐢𝐫𝐞𝐜𝐭𝐥𝐲.
 
 ![imggg](https://i.postimg.cc/yNHQJBnG/Screenshot-2024-03-29-014922.png)
-
-![imggg](https://i.postimg.cc/rF7Yk54M/Screenshot-2024-03-29-014850.png)
